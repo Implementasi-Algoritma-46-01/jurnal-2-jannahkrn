@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Jannah Kurniawati
 
-NIM : 
+NIM : 607062400024
 
 ## Instruksi
 
